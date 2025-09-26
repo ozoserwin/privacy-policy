@@ -1,0 +1,2 @@
+# privacy-policy
+ai pribadi
